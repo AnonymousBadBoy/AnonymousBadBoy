@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @AnonymousBadBoy
 - 👀 I’m interested in carding
-- 🌱 I’m currently learning how to create banner lIVE cc's
-- 💞️ I’m looking to collaborate on stealing MONEY
-- 📫 How to reach me find me 
-- 😄 Pronouns: ...am an OG
+- 🌱 I’m currently learning how to rob a bank
+- 💞️ I’m looking to collaborate on Making life more easier
+- 📫 How to reach me  [ find me ]
+- 😄 Pronouns: ..OG
 - ⚡ Fun fact: ...I dont give a fuck
 
 <!---
